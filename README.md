@@ -1,1 +1,2 @@
-Just kidding
+starcraft is the worst game every created
+
